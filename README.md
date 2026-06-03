@@ -47,4 +47,4 @@ Passionate about building, securing, and automating modern IT infrastructure.
 
 ---
 
-*"Automating infrastructure, securing systems, and building reliable solutions."*
+*"💼 Available for Freelance Projects and Remote Opportunities"*
